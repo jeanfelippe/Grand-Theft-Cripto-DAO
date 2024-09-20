@@ -3,6 +3,14 @@ Olá, jogadores de GTA RP! Você está pronto para transformar sua experiência 
 Aos Players que apoiarem a Pool, receberão itens especiais dentro do jogo como armas e carros raros.
 
 
+Coin: CriptoRoleplay
+
+Blockchain: Polygon
+
+Ferramenta de Votação : Aragon
+
+
+
 # Por que a DAO GTA RP?
 
 No mundo de GTA RP, cada jogador tem uma história única para contar. A DAO GTA RP visa reunir todos esses narradores para criar um espaço onde todos possam colaborar, inovar e se divertir. Queremos promover eventos, financiar projetos criativos e apoiar novos jogadores, tudo de forma descentralizada e democrática.
